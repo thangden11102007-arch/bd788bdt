@@ -12,5 +12,5 @@ BD788 is the ultimate digital gaming hub tailored specifically for players in Ba
 
 Explore a world of endless entertainment with massive jackpots and exclusive VIP loyalty rewards. 
 
-🌐 **Visit our official platform:** [https://krikyacasino.top/](https://krikyacasino.top/)# bd788bdt
+🌐 **Visit our official platform:** https://krikyacasino.top/ bd788bdt
 Official repository for BD788 Bangladesh - Premier Casino &amp; Cricket Betting
